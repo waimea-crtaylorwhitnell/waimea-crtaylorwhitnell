@@ -1,2 +1,10 @@
-## Hi there 👋
-# **I'm bad at talking**
+![image](https://github.com/user-attachments/assets/26980657-3d7a-4810-bf68-fe6d382df5b1)
+![image](https://github.com/user-attachments/assets/c013aa0a-3b1e-4194-a521-e2140e773c6b)
+![image](https://github.com/user-attachments/assets/2d20b98e-96b9-4b8c-ac95-8c22ef13b239)
+![image](https://github.com/user-attachments/assets/1ee13b42-5b2b-4e91-9744-3cbacfc8f30e)
+![image](https://github.com/user-attachments/assets/64088557-9a63-41a7-ba9d-3e328b60a672)
+![image](https://github.com/user-attachments/assets/aaf90b3e-6b4e-4e49-8640-ab9fdbf52a06)
+![image](https://github.com/user-attachments/assets/16055796-6b57-4692-9233-3221dd68564f)
+![image](https://github.com/user-attachments/assets/f8eee6d0-9e8c-4143-a496-ecf14fe0ede3)
+![image](https://github.com/user-attachments/assets/fe93eca6-1bf6-41aa-9a26-a3089f2a331f)
+![image](https://github.com/user-attachments/assets/60623f0f-baa9-4205-9508-4ff38504f81f)
